@@ -1,2 +1,2 @@
-# EHD-Science-Fair
+# EHD Science Fair
  
